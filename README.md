@@ -11,3 +11,7 @@ Link of our discovery  Pitch: https://youtu.be/ub2aUqF8wAQ
 Link of our orientation  Pitch: https://youtu.be/MgDF11DFvps
 Link of our orientation site : https://trust-digital-service.netlify.app/
 
+link of the pitch 3:
+https://youtu.be/T_6udCZicok
+
+
